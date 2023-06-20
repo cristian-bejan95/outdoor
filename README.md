@@ -1,2 +1,1 @@
-# outdoor
-https://bejancmaster.github.io/outdoor/
+https://cristianbejanmaster.github.io/outdoor/
