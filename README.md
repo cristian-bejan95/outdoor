@@ -1,1 +1,1 @@
-https://cristianbejanmaster.github.io/outdoor/
+https://cristian-bejan95.github.io/outdoor/
